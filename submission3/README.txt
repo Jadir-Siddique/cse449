@@ -1,4 +1,4 @@
-Overleaf link with edit access to course instructor gmail and then email "anybody can edit" link to ST, RA.
+Overleaf link with edit access to course instructor gmail and then email "anybody can edit" link to ST, RA: 
 NOT APPLICABLE
 
 Link to unlisted YouTube video:
