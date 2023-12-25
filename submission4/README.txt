@@ -20,4 +20,4 @@ Group Members:
 23241032 Shammo Faiyaz Ahmed
 
 
-We also correctly have uploaded slide.PPT here.
+We presented using the paper here.
